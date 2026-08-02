@@ -14,6 +14,6 @@
 [rentry](https://rentry.co/love-ill)ㅤㅤㅤㅤ[straw](https://heartlesslover.straw.page) ㅤㅤㅤㅤ[新book](https://frenzy.atabook.org/)
 
 
-[C𖹭DY.](https://github.com/Timebattle)ㅤ[Adi𑁤](https://github.com/ad61e)
-ㅤ[Codin𑁤](https://github.com/lampreyhole)
+[c𖹭dy](https://github.com/Timebattle)ㅤ[adi](https://github.com/ad61e)
+ㅤ[codin](https://github.com/lampreyhole)
 
