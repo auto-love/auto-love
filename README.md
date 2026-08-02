@@ -1,17 +1,12 @@
 
 
 <p align="center"> Approach me meticulously if you are 𝙨𝙪𝙨𝙘𝙚𝙥𝙩𝙞𝙗𝙡𝙚
-<p align="center"> 𝗣𝗧 h×c free
+<p align="center"> 𝗣𝗧 h×c free 
 
 
 
 
-
-
-<p align="center"><img width="60" height="60" alt="17843402464696807945179159477816" src="https://github.com/user-attachments/assets/943bc0fa-eac7-4444-ac4d-1b28739d5f77" />
-
-
-
+<p align="Center"><img width="30" height="30" alt="17856966172568040697723820108756" src="https://github.com/user-attachments/assets/49d04f49-78da-44bd-8d12-8dc26253442c" />
 
 
 
