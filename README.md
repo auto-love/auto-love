@@ -11,7 +11,7 @@
 
 
  
-[rentry](https://rentry.co/love-ill)ㅤㅤㅤㅤ[straw](https://heartlesslover.straw.page) ㅤㅤㅤㅤ[新book](https://frenzy.atabook.org/)
+[rentry](https://rentry.co/cupiddeath)ㅤㅤㅤㅤ[straw](https://heartlesslover.straw.page) ㅤㅤㅤㅤ[新book](https://frenzy.atabook.org/)
 
 
 [c𖹭dy](https://github.com/Timebattle)ㅤ[adi](https://github.com/ad61e)
