@@ -6,12 +6,14 @@
 
 
 
-<p align="Center"><img width="30" height="30" alt="17856966172568040697723820108756" src="https://github.com/user-attachments/assets/49d04f49-78da-44bd-8d12-8dc26253442c" />
+<p align="Center"> <img width="298" height="200" alt="17868944559227402697065616582462" src="https://github.com/user-attachments/assets/24588a1d-5293-4d63-9b03-8bfe8b50e3c3" />
 
 
 
  
 [rentry](https://rentry.co/cupiddeath)ㅤㅤㅤㅤ[straw](https://heartlesslover.straw.page) ㅤㅤㅤㅤ[新book](https://frenzy.atabook.org/)
+
+
 
 
 [c𖹭dy](https://github.com/Timebattle)ㅤ[adi](https://github.com/ad61e)
